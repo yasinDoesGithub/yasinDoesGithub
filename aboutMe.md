@@ -1,0 +1,5 @@
+- hello, im @yasinDoesGithub
+- im interested in gaming stuff and more
+- im currently learning coding
+- FILE NOT FOUND
+- ERROR{666}
